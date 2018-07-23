@@ -1,2 +1,2 @@
 LISTA DE PARTICIPANTES DEL CURSO
-1. Nombre: Juan Daniel Sánchez Montaño Celular: 77935569
+1. Nombre: Juan Daniel Sanchez Montaño Celular: 77935569
