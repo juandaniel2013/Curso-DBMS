@@ -1,1 +1,2 @@
 LISTA DE PARTICIPANTES DEL CURSO
+Juan Daniel Sanchez Montaño
